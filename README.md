@@ -1,2 +1,2 @@
-# Alamak
+# Beginner
 aku manusia
