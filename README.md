@@ -1,2 +1,2 @@
 # Beginner
-aku manusia
+Saya Masih Belajar
