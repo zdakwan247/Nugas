@@ -1,0 +1,2 @@
+# Alamak
+aku manusia
